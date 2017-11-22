@@ -6,10 +6,10 @@
  * 1 Tablespoon olive oil
  * 2.25 teaspoon active dry yeast
  * 1.5 teaspoon sugar
- * >1t Oregano
- * >1t basil
- * >1t thyme
- * >1t rosemary
+ * ≥1t dry Oregano
+ * ≥1t dry basil
+ * ≥1t dry thyme
+ * ≥1t finely crusshed dry rosemary
 ### Process
  1. Add all ingredients
  1. Sit 15 minutes
