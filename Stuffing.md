@@ -5,7 +5,7 @@
 * 3/4 c finely chopped onion (red and yellow blend)
 * 9 c hard or soft bread cubes
 * 1 teaspoon salt
-* 1 1/2 teaspoons chopeed fresh or 1/2 teaspoon ground sage
+* 1 1/2 teaspoons chopped fresh or 1/2 teaspoon ground sage
 * 1 1/2 teaspoons chopped fresh or 1/2 teaspoon dried thyme leaves
 * 1/4 teaspoon pepper
 * (optional) 1/4-3/4 c vegetable broth depending on how dry the bread

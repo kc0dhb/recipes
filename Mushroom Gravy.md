@@ -17,7 +17,7 @@
  * ~1 c almond milk
  
 ## Process
-1. Cook all `The Beginnings` until mostly carmelized
+1. Cook all `The Beginnings` until mostly caramelized
 1. Add `The Middles`
 1. Bring to low boil
 1. Stir for 20 minutes (Use a gravy stirrer or stir the whole time)
